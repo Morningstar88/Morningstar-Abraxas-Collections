@@ -12,6 +12,7 @@
 
 Small claims and Big Claims
 
+- Make evidence pack. 
 - Practice on smaller UK firms and media.
 - Write a standard form.
 - Go to the right portal.
