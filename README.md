@@ -6,6 +6,10 @@
 
 [Small Claims Track Overview](https://youtu.be/kdmzo-HdVIg) [How to fill in the form](https://youtu.be/kdmzo-HdVIg?t=296)
 
+### Itemized claim
+
+- Fraudulent media. Conspiring with Stephen G etc to... Coercion re: Vaccines. False media narrative.
+
 Small claims and Big Claims
 
 - Practice on smaller UK firms and media.
