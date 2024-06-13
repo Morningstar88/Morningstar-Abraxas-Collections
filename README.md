@@ -10,3 +10,9 @@ Small claims and Big Claims
 - Enjoy the process and don't be fearful.
 
 [MONEYCLAIM UK](https://www1.moneyclaims.service.gov.uk/eligibility)
+
+## Possible Defendants
+
+Personal: MPR - HMK - ILD 
+Media: Local newspapers.
+Banks: Local.
