@@ -2,6 +2,8 @@
 
 ## We are apparently eligible to use the moneyclaims portal. [Basic overview](https://www.citizensadvice.org.uk/law-and-courts/legal-system/small-claims/making-a-small-claim/)
 
+[Well written task list](https://www1.moneyclaims.service.gov.uk/claim/task-list)
+
 Small claims and Big Claims
 
 - Practice on smaller UK firms and media.
