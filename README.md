@@ -14,6 +14,8 @@ Small claims and Big Claims
 
 [MONEYCLAIM UK](https://www1.moneyclaims.service.gov.uk/eligibility)
 
+PIN CODE: WCAPITAL8FIRSTCAP
+
 ## Possible Defendants
 
 Personal: MPR - HMK - ILD 
