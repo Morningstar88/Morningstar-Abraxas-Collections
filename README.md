@@ -16,3 +16,7 @@ Small claims and Big Claims
 Personal: MPR - HMK - ILD 
 Media: Local newspapers.
 Banks: Local.
+
+## Useful Facts
+
+Fun fact, lawyers are not allowed at the initial small claims hearing! This is to even the playing field so that each party has an equal chance of obtaining justice.
