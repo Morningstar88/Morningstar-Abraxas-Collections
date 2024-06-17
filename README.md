@@ -1,4 +1,4 @@
-# Morningstar-Abraxas-Law
+# Morningstar-Abraxas-Collections
 
 ## We are apparently eligible to use the moneyclaims portal. [Basic overview](https://www.citizensadvice.org.uk/law-and-courts/legal-system/small-claims/making-a-small-claim/)
 
