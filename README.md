@@ -2,6 +2,10 @@
 
 ## [Moneyclaims](https://www.moneyclaim.gov.uk/web/mcol/welcome)
 
+[MONEYCLAIM UK](https://www1.moneyclaims.service.gov.uk/eligibility)
+
+PIN CODE: WCAPITAL8FIRSTCAP
+
 [Well written task list](https://www1.moneyclaims.service.gov.uk/claim/task-list)
 
 [Small Claims Track Overview](https://youtu.be/kdmzo-HdVIg) [How to fill in the form](https://youtu.be/kdmzo-HdVIg?t=296)
@@ -29,9 +33,7 @@ https://en.wikipedia.org/wiki/Quality_press https://en.wikipedia.org/wiki/Bristo
 - Start with 35 pounds and 300 on a minor target.
 - Enjoy the process and don't be fearful.
 
-[MONEYCLAIM UK](https://www1.moneyclaims.service.gov.uk/eligibility)
 
-PIN CODE: WCAPITAL8FIRSTCAP
 
 ## Possible Defendants
 
