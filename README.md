@@ -1,16 +1,18 @@
 # Morningstar-Abraxas-Collections
 
-## We are apparently eligible to use the moneyclaims portal. [Basic overview](https://www.citizensadvice.org.uk/law-and-courts/legal-system/small-claims/making-a-small-claim/)
+## [Moneyclaims](https://www.moneyclaim.gov.uk/web/mcol/welcome)
 
 [Well written task list](https://www1.moneyclaims.service.gov.uk/claim/task-list)
 
 [Small Claims Track Overview](https://youtu.be/kdmzo-HdVIg) [How to fill in the form](https://youtu.be/kdmzo-HdVIg?t=296)
 
-### Itemized claim
+### Who to Collect From
+
+1st case.. Guardian?
 
 - Fraudulent media. Conspiring with Stephen G etc to... Coercion re: Vaccines. False media narrative.
 
-Small claims and Big Claims
+Tasklist
 
 - Make evidence pack. 
 - Practice on smaller UK firms and media.
