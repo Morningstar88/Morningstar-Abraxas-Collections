@@ -10,9 +10,13 @@
 
 1st case.. Guardian?
 
+https://en.wikipedia.org/wiki/List_of_newspapers_in_the_United_Kingdom
+
+Twelve daily newspapers and eleven Sunday-only weekly newspapers are distributed nationally in the United Kingdom. Others circulate in Scotland only and still others serve smaller areas. National daily newspapers publish every day except Sundays and 25 December. 
+
 - Fraudulent media. Conspiring with Stephen G etc to... Coercion re: Vaccines. False media narrative.
 
-Tasklist
+# Tasklist
 
 - Make evidence pack. 
 - Practice on smaller UK firms and media.
