@@ -6,15 +6,15 @@ I certainly do not wish to abuse any court process, as claimed by the defendant 
 
 I have never taken anyone to court before, and I am simply asking that this case is overseen by fair, impartial judges.
 
-I'm claiming against the Guardian because their coverage contributed towards a worldwide panic which caused, health, travel, transport and social problems for many British citizens, at home or abroad.
+## I'm claiming against the Guardian because their coverage contributed towards a worldwide panic which caused, health, travel, transport and social problems for many British citizens, and businesses, at home in the UK, or abroad.
 
-The Guardian Newspaper wrote at least five articles claiming that:
+The Guardian Newspaper wrote at least dozens of articles claiming that:
 
-There was a virus.
+- There was a virus.
 
-Lockdowns and vaccines were an appropriate response to this virus.
+- Lockdowns and vaccines were an appropriate response to this virus.
 
-Taxpayer money should be given to Moderna, Pfizer et al, to pay for unproven vaccines.
+- Taxpayer money should be given to Moderna, Pfizer et al, to pay for unproven vaccines.
 
 ![image](https://github.com/user-attachments/assets/3b0b051e-fd73-4a50-bac5-77bad0bb12cf)
 
@@ -40,16 +40,34 @@ The Guardian's coverage of the 'pandemic' contributed significantly to the hyste
 
 Guardian articles promoted vaccines as a viable response to the virus.
 
+Nasal Swabs, intimidate...
+
+![image](https://github.com/user-attachments/assets/87ac85ba-6374-468b-80be-e9c7318a178d)
+
+
 When the vaccines were released, in 2021 and 2022, there was no care taken to ensure that there was an appropriate testing period, to guard against side-effects, toxins, and long term health effects.
 
-The Guardian's promotion of vaccines was both reckless and biased.
+![image](https://github.com/user-attachments/assets/66bc29fc-cdac-4898-b845-7be868d86e5a)
+
+
+The Guardian's promotion of vaccines was both reckless and biased. In the initial stages, they did nothing to question the lucrative narratives being pushed by pharmaceutical companies, who stood to make hundreds of millions from vaccine contracts.
+
+![image](https://github.com/user-attachments/assets/77d9c095-f004-4205-a598-40fee371296b)
+
 
 This promotion of vaccines in the Guardian's coverage, amounts to medical coercion, where those who were unvaccinated, were asked to stay at home. MORE
+
+![image](https://github.com/user-attachments/assets/1e7a1ac5-89cc-4d4e-8bc2-64eb00cf1c86)
+
+https://www.theguardian.com/world/2022/aug/15/from-nasal-vaccines-to-pills-the-next-defences-against-covid
 
 The vaccines were rushed out, without a proper testing period. The Guardian knew this, chose to ignore the dangers, and put the health of many British citizens at risk, both in the UK, and abroad, as their periodical is read worldwide.
 
 The Guardian's pushing of the COVID narrative contributed to worldwide lockdowns, where many people, including myself, lost significant income. My income in Taipei went from an average of 1000 pounds per month, to 300, as students were ordered to stay at home. The Guardian's pushing of the pharmaceutical narrative contributed directly to this situation.
 
+![image](https://github.com/user-attachments/assets/a651bde3-f6e7-49a7-8af4-ce65f1ae76cd)
+
+https://www.theguardian.com/world/2020/mar/19/chinas-coronavirus-lockdown-strategy-brutal-but-effective
 My supervisor at work, Derek Rhodes, is a British citizen, and contributed to vax blaimalil. PROVE, screengrab.
 
 I therefore believe the Guardian's coverage of the virus and vaccine to be negligent, psychologically hurtful, financially damaging to millions of livelihoods, and a contribution towards the violation of several basic human rights...
