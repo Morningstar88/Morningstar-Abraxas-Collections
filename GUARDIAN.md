@@ -97,6 +97,11 @@ The right of the British Public, and myself, to have a testing period of 5-10 ye
 The Guardian, in times of peace and war, is under a very serious obligation to every UK citizen to fact check their claims, and act with integrity, calm and diligence. I believe they did not meet this obligation, and instead promoted unfounded medical hysteria, putting the lives, health, travel plans and savings of many UK citizens in jeopardy.
 
 The right to choose nutritional and natural remedies without having pharmaceutical products forced upon us. The Guardian did not consider any alternatives, and instead PROVE SCREENGRAB.
+
+![image](https://github.com/user-attachments/assets/1d00614d-26a4-4aa3-bf17-4d5e3505fb53)
+
+Covid conspiracies – in common with most conspiracy theories – are often presented in the form of complex, pseudo-technical documents. The idea that the WHO has criticised the UK’s use of PCR testing, for instance, is based on a misreading of a highly technical bit of lab guidance attached to the tests. This kind of thing is difficult to factcheck, and besides, factchecking is of limited use in changing believers’ minds, because sources such as the BBC or the Office for National Statistics are seen as untrustworthy, part of the lie. “If you don’t want to be convinced, then it’s not going to happen,” says Jon Roozenbeek, a Cambridge academic who studies disinformation.
+
 In short, The Guardian took part in a prolonged national blackmail scheme, in which dangerous, untested vaccines were forced upon British citizens, at home and abroad, by multiple South East Asian governments.
 
 It was made clear, in multiple Guardian articles, that those who did not take the vaccine would not have access to infrastructure. PROVE.
