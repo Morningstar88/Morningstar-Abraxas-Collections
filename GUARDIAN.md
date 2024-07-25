@@ -63,12 +63,18 @@ https://www.theguardian.com/world/2022/aug/15/from-nasal-vaccines-to-pills-the-n
 
 The vaccines were rushed out, without a proper testing period. The Guardian knew this, chose to ignore the dangers, and put the health of many British citizens at risk, both in the UK, and abroad, as their periodical is read worldwide.
 
+https://www.theguardian.com/us-news/2023/dec/01/texas-pfizer-covid-19-vaccine-lawsuit-effectiveness
+
 The Guardian's pushing of the COVID narrative contributed to worldwide lockdowns, where many people, including myself, lost significant income. My income in Taipei went from an average of 1000 pounds per month, to 300, as students were ordered to stay at home. The Guardian's pushing of the pharmaceutical narrative contributed directly to this situation.
 
 ![image](https://github.com/user-attachments/assets/a651bde3-f6e7-49a7-8af4-ce65f1ae76cd)
 
 https://www.theguardian.com/world/2020/mar/19/chinas-coronavirus-lockdown-strategy-brutal-but-effective
 My supervisor at work, Derek Rhodes, is a British citizen, and contributed to vax blaimalil. PROVE, screengrab.
+
+![image](https://github.com/user-attachments/assets/40d48a54-7f06-4c76-842c-a957db595b95)
+
+https://www.theguardian.com/us-news/2023/dec/01/texas-pfizer-covid-19-vaccine-lawsuit-effectiveness
 
 I therefore believe the Guardian's coverage of the virus and vaccine to be negligent, psychologically hurtful, financially damaging to millions of livelihoods, and a contribution towards the violation of several basic human rights...
 
