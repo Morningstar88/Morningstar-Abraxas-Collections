@@ -10,19 +10,21 @@ I certainly do not wish to abuse any court process, as claimed by the defendant 
 
 I have never taken anyone to court before, and I am simply asking that this case be overseen by fair, impartial judges.
 
-## I'm claiming against the Guardian because their biased coverage contributed towards a worldwide vaccine panic which caused, health, travel, transport and social problems for many British citizens and businesses, both at home in the UK, or abroad. Virus and Vaccine hysteria, caused directly by the Guardian and other UK periodicals, caused widespread problems in the Taipei business community. Not only were we ordered to sit at home, but a once thriving Corporate Training business in the centre of Taipei, lost 80% of its business, as students were asked to sit at home, or not come to class. 
+*
 
-The Guardian, as UK citizens over the age of 18, are directly responsible for fact-checking, and reporting unbiasedly. This, they did not do, for a period of 2 to 3 years. 
+#### *I'm claiming against the Guardian because their biased coverage contributed towards a worldwide vaccine panic which caused, health, travel, transport and social problems for many British citizens and businesses, both at home in the UK, or abroad. Virus and Vaccine hysteria, caused directly by the Guardian and other UK periodicals, caused widespread problems in the Taipei business community. Not only were we ordered to sit at home, but a once thriving Corporate Training business in the centre of Taipei, lost 80% of its business, as students were asked to sit at home, or not come to class.* 
+
+The Guardian, as UK citizens over the age of 18, are directly responsible for fact-checking, and reporting unbiasedly. This, they did not do, for a period of 2 to 3 years. Their coverage made an entire nation sit at home. Vaccines were presented as the only viable path out. This is a clear case of denial of infrastructure, and premeditated blackmail.
 
 ## Viruses, Lockdowns, and Vaccine Contracts
 
-From 2020 to 2023, The Guardian Newspaper wrote dozens, if not hundreds of articles claiming that:
+From 2020 to 2023, The Guardian Newspaper wrote dozens, if not hundreds of articles on the coronavirus pandemic:
 
-- There was a virus.
+- There was a worldwide virus.
 
 - Lockdowns, draconian restrictions and dangerous vaccines were an appropriate, proportionate response to this virus.
 
-- Taxpayer money should be given to Moderna, Pfizer et al, to pay for unproven vaccines.
+- Taxpayer money, amounting to hundreds of millions of pounds, should be given to Moderna, Pfizer et al, to pay for unproven vaccines.
 
 *
 
@@ -34,20 +36,19 @@ From 2020 to 2023, The Guardian Newspaper wrote dozens, if not hundreds of artic
 
 The deals, for 2022 and 2023, were accelerated after the emergence of the Omicron coronavirus variant, officials said. Under the agreements, the UK will buy 54m more doses from Pfizer/BioNTech and 60m more doses from Moderna.
 
-- We are told by the Guardian that a new variant, imaginitively named Omnicron, has emerged. We are told that the government must secure a new contract. Their narrative lacks coherency, and makes no objective sense, in the calmness of hindsight.
+- We are told by the Guardian that a new variant, imaginitively named Omnicron, has emerged. We are told that the government must secure a new vaccine contract. The Guardian's reporting lacks coherency, and makes no objective sense, in the calmness of hindsight.
 
-I believe that the Guardian Media Group's claim that there was a virus, was negligent, dangerous, biased,and poorly fact-checked.
+I believe that the Guardian Media Group's claim that there was a virus, was negligent, dangerous, pharmaceutically biased, and poorly fact-checked.
 
 The Guardian's coverage of the 'pandemic' contributed significantly to the hysteria in the UK.
 
 ![image](https://github.com/user-attachments/assets/dbbaae04-5965-4eb9-b7cb-8b423cbf0f88)
 
+In the following article, they refer to "some experts" without even naming them. Only Sajid Javid is named... all other parties are faceless, unnacountable. I find this approach to be in violation of the Guardian's Duty of Care towards the British public, their readership, and expatraites abroad. A vaccine or virus expert should be named publicly. Otherwise the appellation 'expert' is nothing more than a bluff.
 
-In the following article, they refer to "some experts" without even naming them. I find this approach to be in violation of the Guardian's Duty of Care towards the British public, their readership, and expatraites abroad. A vaccine or virus expert should be named publicly. Otherwise the appellation 'expert' is nothing more than a bluff.
+## The Gaurdian took part in Vaccine Intimidation
 
-Only Sajid Javid is named... all other parties are faceless, unnacountable. 
-
-The people of the United Kingdom, and myself, were forced to sit at home, doing little business, and not flying abroad, while weaker members of our society were intimidated, by The Guardian, into taking experimental vaccines which had hardly been tested. 
+The people of the United Kingdom, and myself, were forced to sit at home, doing little business, and not flying abroad, while more vulnerable members of our society were intimidated, by The Guardian, into taking experimental vaccines which had hardly been tested. 
 
 
 Nasal Swabs, intimidate...
@@ -55,14 +56,9 @@ Nasal Swabs, intimidate...
 ![image](https://github.com/user-attachments/assets/87ac85ba-6374-468b-80be-e9c7318a178d)
 
 
-
-
-
-
 https://www.theguardian.com/news/2021/apr/08/among-covid-sceptics-we-are-being-manipulated-anti-lockdown
 
-Guardian articles promoted vaccines as a viable response to the virus.
-
+## The Guardian promoted a vaccine panic
 
 When the vaccines were released, in 2021 and 2022, there was no care taken to ensure that there was an appropriate testing period, to guard against side-effects, toxins, and long term health effects.
 
