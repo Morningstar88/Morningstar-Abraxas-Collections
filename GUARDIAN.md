@@ -1,52 +1,67 @@
 ## JAKE MACKENZIE VS THE GUARDIAN
 
+Dear Moneyclaim, and Katherine House,
+
 Thank you for presiding over this case.
 
-I certainly do not wish to abuse any court process, as claimed by the defendant in 10(3.2).
+I certainly do not wish to abuse any court process, as claimed by the defendant in 10(3.2) of their response pack.
 
-I have never taken anyone to court before, and I am simply asking that this case is overseen by fair, impartial judges.
+![image](https://github.com/user-attachments/assets/5125dc2f-fb49-4161-8a4b-647db92f17af)
 
-## I'm claiming against the Guardian because their coverage contributed towards a worldwide panic which caused, health, travel, transport and social problems for many British citizens, and businesses, at home in the UK, or abroad. THe hysterical coverage from the Guardian caused widespread problems in the Taipei business community.
+I have never taken anyone to court before, and I am simply asking that this case be overseen by fair, impartial judges.
 
-The Guardian Newspaper wrote at least dozens of articles claiming that:
+## I'm claiming against the Guardian because their biased coverage contributed towards a worldwide vaccine panic which caused, health, travel, transport and social problems for many British citizens and businesses, both at home in the UK, or abroad. Virus and Vaccine hysteria, caused directly by the Guardian and other UK periodicals, caused widespread problems in the Taipei business community. Not only were we ordered to sit at home, but a once thriving Corporate Training business in the centre of Taipei, lost 80% of its business, as students were asked to sit at home, or not come to class. 
+
+The Guardian, as UK citizens over the age of 18, are directly responsible for fact-checking, and reporting unbiasedly. This, they did not do, for a period of 2 to 3 years. 
+
+## Viruses, Lockdowns, and Vaccine Contracts
+
+From 2020 to 2023, The Guardian Newspaper wrote dozens, if not hundreds of articles claiming that:
 
 - There was a virus.
 
-- Lockdowns and vaccines were an appropriate response to this virus.
+- Lockdowns, draconian restrictions and dangerous vaccines were an appropriate, proportionate response to this virus.
 
 - Taxpayer money should be given to Moderna, Pfizer et al, to pay for unproven vaccines.
 
+*
+
+## Guardian Article. Andrew Gregory, Health editor, Wed 1 Dec 2021 22.30 GMT
+
 ![image](https://github.com/user-attachments/assets/3b0b051e-fd73-4a50-bac5-77bad0bb12cf)
 
-Extra Pfizer/BioNTech and Moderna jabs for 2022 and 2023 ordered to ‘future proof’ vaccine programme
-
-Coronavirus – latest updates
-See all our coronavirus coverage
-Andrew Gregory Health editor
-Wed 1 Dec 2021 22.30 GMT
-Share on FacebookShare on TwitterShare via Email
- 2 years old
-Ministers in the UK have secured new contracts to buy 114m more Covid-19 vaccines for the next two years.
+#### Extra Pfizer/BioNTech and Moderna jabs for 2022 and 2023 ordered to ‘future proof’ vaccine programme. Ministers in the UK have secured new contracts to buy 114m more Covid-19 vaccines for the next two years.
 
 The deals, for 2022 and 2023, were accelerated after the emergence of the Omicron coronavirus variant, officials said. Under the agreements, the UK will buy 54m more doses from Pfizer/BioNTech and 60m more doses from Moderna.
 
+- We are told by the Guardian that a new variant, imaginitively named Omnicron, has emerged. We are told that the government must secure a new contract. Their narrative lacks coherency, and makes no objective sense, in the calmness of hindsight.
+
 I believe that the Guardian Media Group's claim that there was a virus, was negligent, dangerous, biased,and poorly fact-checked.
-
-In the following article, they refer to "some experts" without even naming them. I find this approach to be in violation of the Guardian's Duty of Care towards the British public, their readership, and expatraites abroad.
-Only Sajid Javid is named... all other parties are faceless, unnacountable. 
-
 
 The Guardian's coverage of the 'pandemic' contributed significantly to the hysteria in the UK.
 
 ![image](https://github.com/user-attachments/assets/dbbaae04-5965-4eb9-b7cb-8b423cbf0f88)
 
-https://www.theguardian.com/news/2021/apr/08/among-covid-sceptics-we-are-being-manipulated-anti-lockdown
 
-Guardian articles promoted vaccines as a viable response to the virus.
+In the following article, they refer to "some experts" without even naming them. I find this approach to be in violation of the Guardian's Duty of Care towards the British public, their readership, and expatraites abroad. A vaccine or virus expert should be named publicly. Otherwise the appellation 'expert' is nothing more than a bluff.
+
+Only Sajid Javid is named... all other parties are faceless, unnacountable. 
+
+The people of the United Kingdom, and myself, were forced to sit at home, doing little business, and not flying abroad, while weaker members of our society were intimidated, by The Guardian, into taking experimental vaccines which had hardly been tested. 
+
 
 Nasal Swabs, intimidate...
 
 ![image](https://github.com/user-attachments/assets/87ac85ba-6374-468b-80be-e9c7318a178d)
+
+
+
+
+
+
+https://www.theguardian.com/news/2021/apr/08/among-covid-sceptics-we-are-being-manipulated-anti-lockdown
+
+Guardian articles promoted vaccines as a viable response to the virus.
 
 
 When the vaccines were released, in 2021 and 2022, there was no care taken to ensure that there was an appropriate testing period, to guard against side-effects, toxins, and long term health effects.
