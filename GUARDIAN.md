@@ -38,6 +38,10 @@ Only Sajid Javid is named... all other parties are faceless, unnacountable.
 
 The Guardian's coverage of the 'pandemic' contributed significantly to the hysteria in the UK.
 
+![image](https://github.com/user-attachments/assets/dbbaae04-5965-4eb9-b7cb-8b423cbf0f88)
+
+https://www.theguardian.com/news/2021/apr/08/among-covid-sceptics-we-are-being-manipulated-anti-lockdown
+
 Guardian articles promoted vaccines as a viable response to the virus.
 
 Nasal Swabs, intimidate...
