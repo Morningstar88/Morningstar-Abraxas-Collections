@@ -6,7 +6,7 @@ I certainly do not wish to abuse any court process, as claimed by the defendant 
 
 I have never taken anyone to court before, and I am simply asking that this case is overseen by fair, impartial judges.
 
-## I'm claiming against the Guardian because their coverage contributed towards a worldwide panic which caused, health, travel, transport and social problems for many British citizens, and businesses, at home in the UK, or abroad.
+## I'm claiming against the Guardian because their coverage contributed towards a worldwide panic which caused, health, travel, transport and social problems for many British citizens, and businesses, at home in the UK, or abroad. THe hysterical coverage from the Guardian caused widespread problems in the Taipei business community.
 
 The Guardian Newspaper wrote at least dozens of articles claiming that:
 
