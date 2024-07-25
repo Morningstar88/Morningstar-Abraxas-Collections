@@ -12,9 +12,17 @@ I have never taken anyone to court before, and I am simply asking that this case
 
 *
 
-#### *I'm claiming against the Guardian because their biased coverage contributed towards a worldwide vaccine panic which caused, health, travel, transport and social problems for many British citizens and businesses, both at home in the UK, or abroad. Virus and Vaccine hysteria, caused directly by the Guardian and other UK periodicals, caused widespread problems in the Taipei business community. Not only were we ordered to sit at home, but a once thriving Corporate Training business in the centre of Taipei, lost 80% of its business, as students were asked to sit at home, or not come to class.* 
+## How The Guardian Damaged UK society and business from 2020 to 2024
 
-The Guardian, as UK citizens over the age of 18, are directly responsible for fact-checking, and reporting unbiasedly. This, they did not do, for a period of 2 to 3 years. Their coverage made an entire nation sit at home. Vaccines were presented as the only viable path out. This is a clear case of denial of infrastructure, and premeditated blackmail.
+#### *I'm claiming against the Guardian because their biased coverage contributed towards a worldwide vaccine panic which caused, health, travel, transport and social problems for many British citizens and businesses, both at home in the UK, or abroad. 
+
+#### *Virus and Vaccine hysteria, caused directly by the Guardian and other UK periodicals, caused widespread problems in the Taipei business community. 
+
+#### Not only were UK citizens abroad ordered to stay home, but a once thriving Corporate Training business in the centre of Taipei, Core Corner of Zhongxiao Fuxing, lost 80% of its business, as students were asked to sit at home, or not come to class.* 
+
+#### Dangerous vaccines were then touted as the only solution to the situation. A situation they created themselves.
+
+The Guardian, as UK citizens over the age of 18, are directly responsible for fact-checking, and reporting unbiasedly. This, they did not do, for a period of 2 to 3 years. Their coverage made an entire nation sit at home. Vaccines were presented as the only viable path out. This is a clear case of denial of infrastructure, and premeditated blackmail. A problem is created in the form of an imaginary virus. The public reacts with fear. A solution is presented in the form of untested vaccines, and Draconian lockdowns.
 
 ## Viruses, Lockdowns, and Vaccine Contracts
 
