@@ -78,6 +78,14 @@ https://www.theguardian.com/us-news/2023/dec/01/texas-pfizer-covid-19-vaccine-la
 
 I therefore believe the Guardian's coverage of the virus and vaccine to be negligent, psychologically hurtful, financially damaging to millions of livelihoods, and a contribution towards the violation of several basic human rights...
 
+![image](https://github.com/user-attachments/assets/4aa5b78b-53d4-4d94-9b77-c5bb2bd34889)
+
+![image](https://github.com/user-attachments/assets/d657474a-f6e8-48ae-8555-e64ced761efa)
+
+https://www.theguardian.com/business/2022/may/07/vaccine-to-stop-covid-transmission-should-now-be-top-priority-says-leading-uk-scientist
+
+
+
 Human Rights Violated
 
 The right to do business in a high street or shopping precinct without government or corporate interference. The Guardian's coverage contributed to worldwide lockdown hysteria in many expatriate communities, including the Taipei business community.
