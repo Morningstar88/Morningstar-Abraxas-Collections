@@ -1,34 +1,64 @@
+CC email.
+
 ## JAKE MACKENZIE VS THE GUARDIAN
 
 Dear Moneyclaim, and St Katharine's House,
 
 Thank you for presiding over this case.
 
-I am outside the UK right now, so cannot fill in paperwork in person. I hope this written testimonial will suffice. I am requesting that this process take place 100% online.
+I received Mr Adriano's thoughtfully written response pack by email yesterday.
 
-I certainly do not wish to abuse or obstruct any court process, as claimed by the defendant in 10(3.2) of their response pack. 
+I am outside the UK right now, so cannot fill in paperwork in person. I hope this written testimonial will suffice. 
 
-In fact, it is the Guardian's virus and vaccine coverage that abused the goodwill and credulity of the British, and wordlwide public. Vaccine worries contributed towards travel and business obstructions and restrictions in the UK, South East Asia, and Earth, for over three years. 
+I am requesting that this process take place 100% online.
+
+I certainly do not wish to abuse or obstruct any court process, as claimed by GMN and Mr Adriano, in 10(3.2) of their response. 
 
 ![image](https://github.com/user-attachments/assets/5125dc2f-fb49-4161-8a4b-647db92f17af)
+
+In fact, it is the Guardian's virus and vaccine coverage that abused the goodwill and credulity of the British, and wordlwide public. Vaccine worries contributed towards travel and business obstructions and restrictions in the UK, South East Asia, and Earth, for over three years. 
 
 I have never taken anyone to court before, and I am simply asking that this case be overseen by fair, impartial judges. 
 
 ## Mediation is Requested
 
-Like the defendant, The Guardian, I too seek a speedy resolution. I present my case in writing. I would also prefer to resolve this case with no trial. I am open to mediation, as long as I get a financial settlement.
+Like the defendant, The Guardian, I too seek a speedy resolution.  I would also prefer to resolve this case with no trial. I am open to mediation with a moneyclaim officer, as long as I get a financial settlement which reflects both damagtes, and the time I have spent compiling this case.
+
+I have presented my case online, here... as I am still formatting my writing.
+
+Please tell me what steps I need to take next to bring a speedy resolution. 
+
+Faithfully,
+
+Jake Mackenzie
+
+## CASE FOLLOWS
 
 ## How The Guardian's Biased Vaccine Coverage Damaged UK + Taiwanese Society, Business, and My Personal Income, from February 2020, to Summer 2023
 
 ![image](https://github.com/user-attachments/assets/3b0b051e-fd73-4a50-bac5-77bad0bb12cf)
 
+I swear, under penalty of perjury, the following testimonial is a true and faithful account, to the best of my recollection.
+
 #### * I'm claiming against the Guardian, because their negligent fact-checking contributed towards a worldwide virus and vaccine panic, which caused the following chain of events;
 
-### 1. 24 to 36 months of strong social pressure, and financial coercion to take untested, unsafe vaccines. The Guardian ignored or minimized vaccine side-effects many times. I saw friends and colleagues in Taipei suffer from nerve damage, chronic fatigue, Bell's Palsy and other ill health effects, very soon after they took their shots. The Guardian contributed greatly to vaccine pressure.
+### ONE. 24 to 36 months of strong social pressure, and financial coercion to take untested, unsafe vaccines. The Guardian ignored, dismissised or minimized vaccine side-effects many times. 
 
-### 2. 24 to 36 months of overseas travel restrictions. I could not travel to Indonesia for 3-4 years, as I was worried about unsafe vaccines and medical side-effects. The Guardian supported
+### I saw friends and colleagues in Taipei suffer from nerve damage, chronic fatigue, Bell's Palsy and other ill health effects, very soon after they took their shots. These health effects are hardly mild or short-lived, as the Guardian negligently claimed on March 18th, 2021. 
 
-### 3. 18-24 months of Psychological pressure from family, and work, to take a vaccine which may have caused severe allergies. 
+https://www.theguardian.com/world/2021/mar/18/covid-vaccine-side-effects-pfizer-moderna-johnson-is-it-safe
+
+## Vaccine side effects... what you should know, and why you shouldn't worry. 
+
+![image](https://github.com/user-attachments/assets/e411610a-98c6-4ec0-aff1-42ff52e8d967)
+
+
+### TWO. The citizens of Taipei and the UK endured 24 to 36 months of overseas travel restrictions. I could not travel to Indonesia for 3-4 years, as I was worried about unsafe vaccines and medical side-effects. The Guardian supported both the vaccine and lockdown narrative in South East Asia. On Friday 9th of December 2022, this periodical claimed that "without effective vaccines, China's economy may not heal." 
+
+![image](https://github.com/user-attachments/assets/accfc798-5e11-43ba-a2fa-7e996f0b21a0)
+
+
+### 3. 18-24 months of Psychological pressure from family, and work, to take a vaccine. A vaccines which may have caused severe allergies. The Guardian's constant assurances of the safety and efficacy of these vaccines caused many to take a hardline view of those who decided to remain safely unvaccinated. At work, and on transport, we were treated as second class citizens.
 
 ### 4. Loss of two to three years teaching income, from my employment in a previously thriving business in central Taipei. Loss of students and income was primarily due to vaccine mandates, as I shall prove in many screengrabbed emails. If the Guardian and their allies had not launched the COVID 
 
