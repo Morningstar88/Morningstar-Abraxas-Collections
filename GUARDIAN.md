@@ -39,7 +39,7 @@ Many UK citizens experienced the same situation, both at home in the UK, and abr
 
 ## Core and Corner Vaccine Coercion
 
-My business life and income in Taipei was severely affected by vaccine panic. 
+My business life and income in Taipei was severely affected by vaccine panic. The Guardian UK was one of the primary drivers of the worldwide panic.
 
 You can see in the following emails, that heavy pressure was placed upon teachers to get vaccinated, from governments, bosses, and the worldwide media. 
 
@@ -48,6 +48,8 @@ You can see in the following emails, that heavy pressure was placed upon teacher
 ### December 5th 2021, Vaccine Mandate. Teachers to to take two doses of vaccines, else no work.
 
 ![image](https://github.com/user-attachments/assets/aa796ae6-eb64-478e-826a-90865eea4fe3)
+
+### All teachers must be fully vaccinated against COVID-19 or be subject to constant testing.
 
 ![image](https://github.com/user-attachments/assets/244278f4-43cb-4f35-9243-1982e6636af5)
 
@@ -58,17 +60,45 @@ You can see in the following emails, that heavy pressure was placed upon teacher
 ![image](https://github.com/user-attachments/assets/24a6f695-2659-4927-a4e8-d8cb6237777c)
 
 
-## Core and Corner lost 80% of its income from the COVID pandemic.
+## My Employer, Core Corner of Taipei, lost 80% of its income and students from the COVID pandemic.
 
-#### Not only were UK citizens abroad ordered to stay home, but a once thriving Corporate Training business in the centre of Taipei, Core Corner of Zhongxiao Fuxing, lost 80% of its business, as students were asked to sit at home, or not come to class.* 
+#### Not only were UK citizens abroad ordered to stay home, but a once thriving Corporate Training business in the centre of Taipei, Core Corner of Zhongxiao Fuxing, lost 80% of its one-on-one consultation business. Students were asked to sit at home, or not come to class.* 
 
-#### The education sector in the whole of Taipei lost so much work that I lost 15 to 20,000 pounds in income, and eventually had to leave Taiwan.
+#### The education sector in the whole of Taipei lost so much work that I lost an estimated 15 to 20,000 pounds in income, and eventually had to leave Taiwan, which caused another hit to my savings. From 2020 to 2023, I lost work in Taipei, as a direct result of Virus and Vaccine Hysteria. A hysteria which is directly, personally, and negligently, the fault of the UK Guardian of London.
 
-SCREENGRABS
 
-#### Dangerous vaccines were then touted as the only solution to the situation. A situation they created themselves.
+## Key Email, December 2021
 
-The Guardian, as UK citizens over the age of 18, are directly responsible for fact-checking, and reporting unbiasedly. This, they did not do, for a period of 2 to 3 years. Their coverage made an entire nation sit at home. Vaccines were presented as the only viable path out. This is a clear case of denial of infrastructure, and premeditated blackmail. A problem is created in the form of an imaginary virus. The public reacts with fear. A solution is presented in the form of untested vaccines, and Draconian lockdowns.
+MOE COVID-19 Vaccination Mandate
+Hello Teacher
+
+You may be aware of the government’s 6th December announcement about a vaccination mandate applying to all organizations operating under the auspices of the Ministry of Education (MOE). This announcement means that this mandate is applicable to all teachers at Core & Corner for all types of classes, i.e. both on-line and in-person classes. The details are as follows:
+ 
+
+ All teachers will have to be fully vaccinated against COVID-19 or be subject to constant testing
+Teachers must have had two vaccine doses for more than 14 days to be considered “fully vaccinated”
+All teachers were urged to get fully vaccinated by Friday 17th December; however, vaccination is not compulsory
+Teachers who have a vaccine exemption or cannot get vaccinated due to personal reasons must be tested every week and provide a negative COVID-19 test result from either an antigen rapid test, an at-home rapid test or a polymerase chain reaction (PCR) test
+New teachers must provide a negative COVID-19 test result from either an antigen rapid test, an at-home rapid test or a polymerase chain reaction (PCR) test taken within three days of the first day of work after the deadline
+ 
+![image](https://github.com/user-attachments/assets/2d4a768c-f89f-4c41-af00-7e190adaf202)
+
+![image](https://github.com/user-attachments/assets/3bb93274-dd55-4a25-a06f-235b2bcebf6e)
+
+![image](https://github.com/user-attachments/assets/f748b5da-7912-448d-a4f0-e837eda6dcc6)
+
+![image](https://github.com/user-attachments/assets/3e0727f2-2822-4abe-9d26-0da0d01da2eb)
+ 
+
+#### Dangerous vaccines were touted as the only solution to the situation. A situation they created themselves.
+
+The Guardian, as UK citizens over the age of 18, are directly responsible for fact-checking, and reporting unbiasedly. This, they did not do, for a period of 2 to 3 years. Their coverage made an entire nation sit at home. Vaccines were presented as the only viable path out. 
+
+This is a clear case of denial of infrastructure, and premeditated social and financial blackmail: 
+
+- A problem is created in the form of an imaginary virus. 
+- The public reacts with fear. 
+- A solution is presented in the form of untested vaccines, and Draconian lockdowns.
 
 ## Viruses, Lockdowns, and Vaccine Contracts
 
@@ -115,29 +145,6 @@ In the following article, they refer to "some experts" without even naming them.
 
 This all means that there is now a greater risk that at some point you might become infected or be identified as a close contact. 
 
-## Key Email, December 2021
-
-MOE COVID-19 Vaccination Mandate
-Hello Teacher
-
-You may be aware of the government’s 6th December announcement about a vaccination mandate applying to all organizations operating under the auspices of the Ministry of Education (MOE). This announcement means that this mandate is applicable to all teachers at Core & Corner for all types of classes, i.e. both on-line and in-person classes. The details are as follows:
-
- 
-
- All teachers will have to be fully vaccinated against COVID-19 or be subject to constant testing
-Teachers must have had two vaccine doses for more than 14 days to be considered “fully vaccinated”
-All teachers were urged to get fully vaccinated by Friday 17th December; however, vaccination is not compulsory
-Teachers who have a vaccine exemption or cannot get vaccinated due to personal reasons must be tested every week and provide a negative COVID-19 test result from either an antigen rapid test, an at-home rapid test or a polymerase chain reaction (PCR) test
-New teachers must provide a negative COVID-19 test result from either an antigen rapid test, an at-home rapid test or a polymerase chain reaction (PCR) test taken within three days of the first day of work after the deadline
- 
-![image](https://github.com/user-attachments/assets/2d4a768c-f89f-4c41-af00-7e190adaf202)
-
-![image](https://github.com/user-attachments/assets/3bb93274-dd55-4a25-a06f-235b2bcebf6e)
-
-![image](https://github.com/user-attachments/assets/f748b5da-7912-448d-a4f0-e837eda6dcc6)
-
-![image](https://github.com/user-attachments/assets/3e0727f2-2822-4abe-9d26-0da0d01da2eb)
- 
 ![image](https://github.com/user-attachments/assets/2832af30-ff81-461d-a442-c3f7b5651c0d)
 
 ![image](https://github.com/user-attachments/assets/c74d07d0-f3bd-405f-94c3-9e481dfa7be7)
