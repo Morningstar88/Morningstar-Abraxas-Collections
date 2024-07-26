@@ -4,7 +4,9 @@ Dear Moneyclaim, and St Katharine's House,
 
 Thank you for presiding over this case.
 
-I certainly do not wish to abuse or obstruct any court process, as claimed by the defendant in 10(3.2) of their response pack. In fact, it is the Guardian's coverage that abused both the goodwill of the British public, and contributed towards travel and business obstructions in the UK for over three years. 
+I certainly do not wish to abuse or obstruct any court process, as claimed by the defendant in 10(3.2) of their response pack. 
+
+In fact, it is the Guardian's coverage that abused the goodwill and credulity of the British public, and contributed towards travel and business obstructions in the UK for over three years. 
 
 ![image](https://github.com/user-attachments/assets/5125dc2f-fb49-4161-8a4b-647db92f17af)
 
@@ -12,7 +14,7 @@ I have never taken anyone to court before, and I am simply asking that this case
 
 ## Mediation is Requested
 
-Like the defendant, The Guardian, I too, seek a speedy resolution. I present my case in writing. I would also prefer to resolve this case with no trial. I am open to mediation, as long as I get a financial settlement.
+Like the defendant, The Guardian, I too seek a speedy resolution. I present my case in writing. I would also prefer to resolve this case with no trial. I am open to mediation, as long as I get a financial settlement.
 
 ## How The Guardian's Biased Vaccine Coverage Damaged UK Society, Business, and my Personal Income from February 2020 to Summer 2023
 
@@ -20,7 +22,7 @@ Like the defendant, The Guardian, I too, seek a speedy resolution. I present my 
 
 #### * I'm claiming against the Guardian, because their negligent fact-checking contributed towards a worldwide virus and vaccine panic, which caused the following chain of events;
 
-1. 24 to 36 months of strong social pressure, and financial coercion to take untested, unsafe vaccines. The Guardian glossed over possible health issues many times.
+1. 24 to 36 months of strong social pressure, and financial coercion to take untested, unsafe vaccines. The Guardian ignored possible health issues many times.
 
 2. 24 to 36 months of overseas travel restrictions. I could not travel to Indonesia for 3-4 years, as I was worried about unsafe vaccines and medical side-effects. The Guardian supported
 
@@ -60,26 +62,29 @@ You can see in the following emails, that heavy pressure was placed upon teacher
 ![image](https://github.com/user-attachments/assets/24a6f695-2659-4927-a4e8-d8cb6237777c)
 
 
-## My Employer, Core Corner of Taipei, lost 80% of its income and students from the COVID pandemic.
+## My Employer, Core Corner of Taipei, lost 80% of its students as a direct result of Virus and Vaccine Panic.
 
-#### Not only were UK citizens abroad ordered to stay home, but a once thriving Corporate Training business in the centre of Taipei, Core Corner of Zhongxiao Fuxing, lost 80% of its one-on-one consultation business. Students were asked to sit at home, or not come to class.* 
+#### Not only were UK citizens abroad ordered to stay home, but a once thriving Corporate Training business in the centre of Taipei, Core Corner of Zhongxiao Fuxing, lost 80% of its one-on-one consultation business. Students were asked to sit at home, or not come to class.
 
-#### The education sector in the whole of Taipei lost so much work that I lost an estimated 15 to 20,000 pounds in income, and eventually had to leave Taiwan, which caused another hit to my savings. From 2020 to 2023, I lost work in Taipei, as a direct result of Virus and Vaccine Hysteria. A hysteria which is directly, personally, and negligently, the fault of the UK Guardian of London.
+#### I lost 80% of my income, causing severe financial hardship for 3 years. The education sector in South East Asia has still not recovered to pre-pandemic levels.  
+
+#### The education sector in the whole of Taipei lost so much work, that I lost an estimated 15 to 20,000 pounds in income over 24-26 months. I eventually had to leave Taiwan to look for work elsewhere, which caused another hit to my savings. 
+
+#### From 2020 to 2023, I lost work in Taipei, as a direct result of Virus and Vaccine Hysteria. A hysteria which is directly, personally, and negligently, the fault of the UK Guardian of London.
 
 
-## Key Email, December 2021
+## December 2021.  All teachers will have to be fully vaccinated against COVID-19 or be subject to constant testing
 
 MOE COVID-19 Vaccination Mandate
 Hello Teacher
 
-You may be aware of the government’s 6th December announcement about a vaccination mandate applying to all organizations operating under the auspices of the Ministry of Education (MOE). This announcement means that this mandate is applicable to all teachers at Core & Corner for all types of classes, i.e. both on-line and in-person classes. The details are as follows:
- 
+[..]
 
- All teachers will have to be fully vaccinated against COVID-19 or be subject to constant testing
-Teachers must have had two vaccine doses for more than 14 days to be considered “fully vaccinated”
-All teachers were urged to get fully vaccinated by Friday 17th December; however, vaccination is not compulsory
-Teachers who have a vaccine exemption or cannot get vaccinated due to personal reasons must be tested every week and provide a negative COVID-19 test result from either an antigen rapid test, an at-home rapid test or a polymerase chain reaction (PCR) test
-New teachers must provide a negative COVID-19 test result from either an antigen rapid test, an at-home rapid test or a polymerase chain reaction (PCR) test taken within three days of the first day of work after the deadline
+- All teachers will have to be fully vaccinated against COVID-19 or be subject to constant testing
+- Teachers must have had two vaccine doses for more than 14 days to be considered “fully vaccinated”
+- All teachers were urged to get fully vaccinated by Friday 17th December; however, vaccination is not compulsory
+- Teachers who have a vaccine exemption or cannot get vaccinated due to personal reasons must be tested every week and provide a negative COVID-19 test result from either an antigen rapid test, an at-home rapid test or a polymerase chain reaction (PCR) test
+- New teachers must provide a negative COVID-19 test result from either an antigen rapid test, an at-home rapid test or a polymerase chain reaction (PCR) test taken within three days of the first day of work after the deadline
  
 ![image](https://github.com/user-attachments/assets/2d4a768c-f89f-4c41-af00-7e190adaf202)
 
@@ -90,15 +95,39 @@ New teachers must provide a negative COVID-19 test result from either an antigen
 ![image](https://github.com/user-attachments/assets/3e0727f2-2822-4abe-9d26-0da0d01da2eb)
  
 
-#### Dangerous vaccines were touted as the only solution to the situation. A situation they created themselves.
+## Derek Rhodes and Core Corner Mails
 
-The Guardian, as UK citizens over the age of 18, are directly responsible for fact-checking, and reporting unbiasedly. This, they did not do, for a period of 2 to 3 years. Their coverage made an entire nation sit at home. Vaccines were presented as the only viable path out. 
+![image](https://github.com/user-attachments/assets/f9e2aea4-e9a9-4270-86a8-14d0df721116)
 
-This is a clear case of denial of infrastructure, and premeditated social and financial blackmail: 
+![image](https://github.com/user-attachments/assets/bbdd2567-3c81-4f55-b5b6-33d308966d3b)
 
-- A problem is created in the form of an imaginary virus. 
-- The public reacts with fear. 
-- A solution is presented in the form of untested vaccines, and Draconian lockdowns.
+![image](https://github.com/user-attachments/assets/8f5fad56-5dc5-4923-b905-7027bc176f25)
+
+![image](https://github.com/user-attachments/assets/ddba4f22-01f1-45fb-bf48-ee2e65c2bde9)
+
+ So, if you haven’t done so yet, try to get that booster shot as soon as possible.
+
+This all means that there is now a greater risk that at some point you might become infected or be identified as a close contact. 
+
+![image](https://github.com/user-attachments/assets/2832af30-ff81-461d-a442-c3f7b5651c0d)
+
+![image](https://github.com/user-attachments/assets/c74d07d0-f3bd-405f-94c3-9e481dfa7be7)
+
+ 
+
+ 
+
+In order for Core & Corner to comply with this mandate the Teachers who are unwilling or unable to either be fully vaccinated or provide weekly test results will unfortunately only be permitted to do out-of-office on-line classes from 1st January 2022. 
+
+Have a good Christmas and stay Covid free for 2022.
+
+Kind regards
+
+Derek
+
+***
+
+
 
 ## Viruses, Lockdowns, and Vaccine Contracts
 
@@ -131,36 +160,6 @@ The Guardian's coverage of the 'pandemic' contributed significantly to the hyste
 
 In the following article, they refer to "some experts" without even naming them. Only Sajid Javid is named... all other parties are faceless, unnacountable. I find this approach to be in violation of the Guardian's Duty of Care towards the British public, their readership, and expatraites abroad. A vaccine or virus expert should be named publicly. Otherwise the appellation 'expert' is nothing more than a bluff.
 
-## Derek Rhodes and Core Corner Mails
-
-![image](https://github.com/user-attachments/assets/f9e2aea4-e9a9-4270-86a8-14d0df721116)
-
-![image](https://github.com/user-attachments/assets/bbdd2567-3c81-4f55-b5b6-33d308966d3b)
-
-![image](https://github.com/user-attachments/assets/8f5fad56-5dc5-4923-b905-7027bc176f25)
-
-![image](https://github.com/user-attachments/assets/ddba4f22-01f1-45fb-bf48-ee2e65c2bde9)
-
- So, if you haven’t done so yet, try to get that booster shot as soon as possible.
-
-This all means that there is now a greater risk that at some point you might become infected or be identified as a close contact. 
-
-![image](https://github.com/user-attachments/assets/2832af30-ff81-461d-a442-c3f7b5651c0d)
-
-![image](https://github.com/user-attachments/assets/c74d07d0-f3bd-405f-94c3-9e481dfa7be7)
-
- 
-
- 
-
-In order for Core & Corner to comply with this mandate the Teachers who are unwilling or unable to either be fully vaccinated or provide weekly test results will unfortunately only be permitted to do out-of-office on-line classes from 1st January 2022. 
-
-Have a good Christmas and stay Covid free for 2022.
-
-Kind regards
-
-Derek
-
 Derek Rhodes
 Head Teacher / Business English Consultant
 Mobile: 0988 296090  Tel: (02)2721-5033  #205 Fax: (02)2731-5946
@@ -173,7 +172,7 @@ FB: https://zh-tw.facebook.com/corecorner/
 
 
 
-## The Gaurdian took part in Vaccine Intimidation
+## The Guardian took part in Vaccine Intimidation
 
 The people of the United Kingdom, and myself, were forced to sit at home, doing little business, and not flying abroad, while more vulnerable members of our society were intimidated, by The Guardian, into taking experimental vaccines which had hardly been tested. 
 
@@ -311,3 +310,15 @@ Source: Conversation with Copilot, 7/25/2024
 (4) UK marks 132 million life-saving COVID-19 vaccinations in 2021. https://www.gov.uk/government/news/uk-marks-132-million-life-saving-covid-19-vaccinations-in-2021.
 (5) UK orders extra Covid vaccines for autumn 2022 booster campaign. https://amp.theguardian.com/world/2021/aug/11/uk-orders-extra-covid-vaccines-for-autumn-2022-booster-campaign.
 (6) UK ministers secure 114m more Covid vaccines for next two years. https://amp.theguardian.com/world/2021/dec/01/uk-ministers-secure-114m-more-covid-vaccines-for-next-two-years.
+
+
+
+#### Dangerous vaccines were touted as the only solution to the situation. A situation they created themselves.
+
+The Guardian, as UK citizens over the age of 18, are directly responsible for fact-checking, and reporting unbiasedly. This, they did not do, for a period of 2 to 3 years. Their coverage made an entire nation sit at home. Vaccines were presented as the only viable path out. 
+
+This is a clear case of denial of infrastructure, and premeditated social and financial blackmail: 
+
+- A problem is created in the form of an imaginary virus. 
+- The public reacts with fear. 
+- A solution is presented in the form of untested vaccines, and Draconian lockdowns.
