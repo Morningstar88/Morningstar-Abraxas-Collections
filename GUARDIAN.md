@@ -37,7 +37,12 @@ Many UK citizens experienced the same situation, both at home in the UK, and abr
 
 #### *Virus and Vaccine hysteria, caused directly by the Guardian and other UK periodicals, caused widespread problems in the Taipei business community, and the South East Asian transport industry. I had to delay travel plans for 3 to 4 years, while the fictitious profit-driven pandemic played out.
 
-## Core and Corner VAccine Coercion
+## Core and Corner Vaccine Coercion
+
+My business life in Taipei was affected by vaccine panic. You can see in these emails that heavy pressure was placed upon teachers to get vaccinated, from governments, bosses, and the worldwide media. 
+
+- This pressure came as a result of virus hype from the Guardian. A 'newspaper' that is read by many company bosses in South East Asia.
+
 
 ![image](https://github.com/user-attachments/assets/aa796ae6-eb64-478e-826a-90865eea4fe3)
 
@@ -50,6 +55,7 @@ Many UK citizens experienced the same situation, both at home in the UK, and abr
 ![image](https://github.com/user-attachments/assets/24a6f695-2659-4927-a4e8-d8cb6237777c)
 
 
+## Core and Corner lost 80% of its income from the COVID pandemic.
 
 #### Not only were UK citizens abroad ordered to stay home, but a once thriving Corporate Training business in the centre of Taipei, Core Corner of Zhongxiao Fuxing, lost 80% of its business, as students were asked to sit at home, or not come to class.* 
 
