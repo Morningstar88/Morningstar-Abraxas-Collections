@@ -6,7 +6,7 @@ Thank you for presiding over this case.
 
 I certainly do not wish to abuse or obstruct any court process, as claimed by the defendant in 10(3.2) of their response pack. 
 
-In fact, it is the Guardian's coverage that abused the goodwill and credulity of the British public, and contributed towards travel and business obstructions in the UK for over three years. 
+In fact, it is the Guardian's virus and vaccine coverage that abused the goodwill and credulity of the British, and wordlwide public. Vaccine worries contributed towards travel and business obstructions and restrictions in the UK, South East Asia, and Earth, for over three years. 
 
 ![image](https://github.com/user-attachments/assets/5125dc2f-fb49-4161-8a4b-647db92f17af)
 
@@ -16,7 +16,7 @@ I have never taken anyone to court before, and I am simply asking that this case
 
 Like the defendant, The Guardian, I too seek a speedy resolution. I present my case in writing. I would also prefer to resolve this case with no trial. I am open to mediation, as long as I get a financial settlement.
 
-## How The Guardian's Biased Vaccine Coverage Damaged UK Society, Business, and my Personal Income from February 2020 to Summer 2023
+## How The Guardian's Biased Vaccine Coverage Damaged UK + Taiwanese Society, Business, and My Personal Income, from February 2020, to Summer 2023
 
 ![image](https://github.com/user-attachments/assets/3b0b051e-fd73-4a50-bac5-77bad0bb12cf)
 
@@ -30,7 +30,17 @@ Like the defendant, The Guardian, I too seek a speedy resolution. I present my c
 
 Many UK citizens experienced the same situation, both at home in the UK, and abroad. Businesses were closed, income was sharply reduced. The Guardian is very much responsible for the facts they choose to report.  
 
-## Low Pay. Core and Corner Emails. 
+## My Employer, Core Corner of Taipei, lost 80% of its students as a direct result of Virus and Vaccine Panic.
+
+#### Not only were UK citizens in the UK and abroad ordered to stay home, but a once thriving Corporate Training business in the centre of Taipei, Core Corner of Zhongxiao Fuxing, lost 80% of its one-on-one consultation business. Students were asked to sit at home, or not come to class. The lcokdowns, claimed The Guardian of London, were supposedly because of a deadly virus. The only solution offered by the Media-Pharmaceutical-Transport complex were Draconian freedom restrictions, and dangerous vaccines. Throughout the pandemix, the Guardian lost any impoartiality they may have had before, and instead became proponents of vaccines, and vaccine mandates. Vaccines, and vaccines mandates which were medically lucrative, untested and spurious. 
+
+#### I lost 80% of my income, causing severe financial hardship in my partment in North Taipei for 3 years. 
+
+#### The education sector in the whole of Taipei lost so much work, that I lost an estimated 15 to 20,000 pounds in income over 24-26 months. I eventually left Taiwan to look for work elsewhere, which caused another hit to my savings. There is a direct link between the Guardians negligent fact-checking, the vaccines mandates in South East Asia, and the subsequent loss of income from many hard-working, sincere teachers. 
+
+#### From 2020 to 2023, I lost work in Taipei, as a direct result of Virus and Vaccine Hysteria. A hysteria which is directly, personally, and negligently, the fault of the UK Guardian of London.
+
+
 
 ![image](https://github.com/user-attachments/assets/8f7f81c5-4b37-4627-a6e3-309f7fb91c96)
 
@@ -62,15 +72,6 @@ You can see in the following emails, that heavy pressure was placed upon teacher
 ![image](https://github.com/user-attachments/assets/24a6f695-2659-4927-a4e8-d8cb6237777c)
 
 
-## My Employer, Core Corner of Taipei, lost 80% of its students as a direct result of Virus and Vaccine Panic.
-
-#### Not only were UK citizens abroad ordered to stay home, but a once thriving Corporate Training business in the centre of Taipei, Core Corner of Zhongxiao Fuxing, lost 80% of its one-on-one consultation business. Students were asked to sit at home, or not come to class.
-
-#### I lost 80% of my income, causing severe financial hardship for 3 years. The education sector in South East Asia has still not recovered to pre-pandemic levels.  
-
-#### The education sector in the whole of Taipei lost so much work, that I lost an estimated 15 to 20,000 pounds in income over 24-26 months. I eventually had to leave Taiwan to look for work elsewhere, which caused another hit to my savings. 
-
-#### From 2020 to 2023, I lost work in Taipei, as a direct result of Virus and Vaccine Hysteria. A hysteria which is directly, personally, and negligently, the fault of the UK Guardian of London.
 
 
 ## December 2021.  All teachers will have to be fully vaccinated against COVID-19 or be subject to constant testing
