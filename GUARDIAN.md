@@ -4,19 +4,52 @@ Dear Moneyclaim, and St Katharine's House,
 
 Thank you for presiding over this case.
 
-I certainly do not wish to abuse any court process, as claimed by the defendant in 10(3.2) of their response pack.
+I certainly do not wish to abuse or obstruct any court process, as claimed by the defendant in 10(3.2) of their response pack. In fact, it is the Guardian's coverage that abused both the goodwill of the British public, and contributed towards travel and business obstructions in the UK for over three years. 
 
 ![image](https://github.com/user-attachments/assets/5125dc2f-fb49-4161-8a4b-647db92f17af)
 
-I have never taken anyone to court before, and I am simply asking that this case be overseen by fair, impartial judges. Like the defendant the Guardian, I too, seek a speedy resolution. I present my case in writing. I would also prefer to resolve this case with no trial.
+I have never taken anyone to court before, and I am simply asking that this case be overseen by fair, impartial judges. 
 
-*
+## Mediation is Requested
 
-## How The Guardian's Biased Vaccine coverage Damaged UK Society and Business from 2020 to 2024
+Like the defendant, The Guardian, I too, seek a speedy resolution. I present my case in writing. I would also prefer to resolve this case with no trial. I am open to mediation, as long as I get a financial settlement.
 
-#### * I'm claiming against the Guardian because their negligent reporting contributed towards a worldwide vaccine panic which caused, health, travel, transport and psychological problems for many British citizens and businesses, both at home in the UK, and abroad. 
+## How The Guardian's Biased Vaccine Coverage Damaged UK Society, Business, and my Personal Income from February 2020 to Summer 2023
+
+![image](https://github.com/user-attachments/assets/3b0b051e-fd73-4a50-bac5-77bad0bb12cf)
+
+#### * I'm claiming against the Guardian, because their negligent fact-checking contributed towards a worldwide virus and vaccine panic, which caused the following chain of events;
+
+1. 24 to 36 months of strong social pressure, and financial coercion to take untested, unsafe vaccines. The Guardian glossed over possible health issues many times.
+
+2. 24 to 36 months of overseas travel restrictions. I could not travel to Indonesia for 3-4 years, as I was worried about unsafe vaccines and medical side-effects. The Guardian supported
+
+3. 18-24 months of Psychological pressure from family, and work, to take a vaccine which may have caused severe allergies. 
+
+Many UK citizens experienced the same situation, both at home in the UK, and abroad. Businesses were closed, income was sharply reduced. The Guardian is very much responsible for the facts they choose to report.  
+
+## Low Pay. Core and Corner Emails. 
+
+![image](https://github.com/user-attachments/assets/8f7f81c5-4b37-4627-a6e3-309f7fb91c96)
+
+![image](https://github.com/user-attachments/assets/da82e482-660b-49cf-bd7b-6225f02e7cd8)
+
 
 #### *Virus and Vaccine hysteria, caused directly by the Guardian and other UK periodicals, caused widespread problems in the Taipei business community, and the South East Asian transport industry. I had to delay travel plans for 3 to 4 years, while the fictitious profit-driven pandemic played out.
+
+## Core and Corner VAccine Coercion
+
+![image](https://github.com/user-attachments/assets/aa796ae6-eb64-478e-826a-90865eea4fe3)
+
+![image](https://github.com/user-attachments/assets/244278f4-43cb-4f35-9243-1982e6636af5)
+
+![image](https://github.com/user-attachments/assets/6ba2d528-0f8c-4614-b12c-54778d9a8dc0)
+
+![image](https://github.com/user-attachments/assets/f6ad89d9-5dd9-484a-b710-111a60f30abe)
+
+![image](https://github.com/user-attachments/assets/24a6f695-2659-4927-a4e8-d8cb6237777c)
+
+
 
 #### Not only were UK citizens abroad ordered to stay home, but a once thriving Corporate Training business in the centre of Taipei, Core Corner of Zhongxiao Fuxing, lost 80% of its business, as students were asked to sit at home, or not come to class.* 
 
@@ -42,17 +75,10 @@ From 2020 to 2023, The Guardian Newspaper wrote dozens, if not hundreds of artic
 
 ## Guardian Article. Andrew Gregory, Health editor, Wed 1 Dec 2021 22.30 GMT
 
-![image](https://github.com/user-attachments/assets/3b0b051e-fd73-4a50-bac5-77bad0bb12cf)
-
 #### Extra Pfizer/BioNTech and Moderna jabs for 2022 and 2023 ordered to ‘future proof’ vaccine programme. Ministers in the UK have secured new contracts to buy 114m more Covid-19 vaccines for the next two years.
 
 
 ### Payslip
-
-![image](https://github.com/user-attachments/assets/8f7f81c5-4b37-4627-a6e3-309f7fb91c96)
-
-![image](https://github.com/user-attachments/assets/da82e482-660b-49cf-bd7b-6225f02e7cd8)
-
 
 The deals, for 2022 and 2023, were accelerated after the emergence of the Omicron coronavirus variant, officials said. Under the agreements, the UK will buy 54m more doses from Pfizer/BioNTech and 60m more doses from Moderna.
 
@@ -79,17 +105,6 @@ In the following article, they refer to "some experts" without even naming them.
  So, if you haven’t done so yet, try to get that booster shot as soon as possible.
 
 This all means that there is now a greater risk that at some point you might become infected or be identified as a close contact. 
-
-![image](https://github.com/user-attachments/assets/aa796ae6-eb64-478e-826a-90865eea4fe3)
-
-![image](https://github.com/user-attachments/assets/244278f4-43cb-4f35-9243-1982e6636af5)
-
-![image](https://github.com/user-attachments/assets/6ba2d528-0f8c-4614-b12c-54778d9a8dc0)
-
-![image](https://github.com/user-attachments/assets/f6ad89d9-5dd9-484a-b710-111a60f30abe)
-
-![image](https://github.com/user-attachments/assets/24a6f695-2659-4927-a4e8-d8cb6237777c)
-
 
 ## Key Email, December 2021
 
