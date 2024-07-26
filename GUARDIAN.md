@@ -20,7 +20,7 @@ I have never taken anyone to court before, and I am simply asking that this case
 
 #### Not only were UK citizens abroad ordered to stay home, but a once thriving Corporate Training business in the centre of Taipei, Core Corner of Zhongxiao Fuxing, lost 80% of its business, as students were asked to sit at home, or not come to class.* 
 
-#### The education sector lost so much work that I lost 15 to 20,000 pounds inincome, and eventually had to leave Taiwan.
+#### The education sector in the whole of Taipei lost so much work that I lost 15 to 20,000 pounds in income, and eventually had to leave Taiwan.
 
 SCREENGRABS
 
@@ -45,6 +45,9 @@ From 2020 to 2023, The Guardian Newspaper wrote dozens, if not hundreds of artic
 ![image](https://github.com/user-attachments/assets/3b0b051e-fd73-4a50-bac5-77bad0bb12cf)
 
 #### Extra Pfizer/BioNTech and Moderna jabs for 2022 and 2023 ordered to ‘future proof’ vaccine programme. Ministers in the UK have secured new contracts to buy 114m more Covid-19 vaccines for the next two years.
+
+![image](https://github.com/user-attachments/assets/da82e482-660b-49cf-bd7b-6225f02e7cd8)
+
 
 The deals, for 2022 and 2023, were accelerated after the emergence of the Omicron coronavirus variant, officials said. Under the agreements, the UK will buy 54m more doses from Pfizer/BioNTech and 60m more doses from Moderna.
 
