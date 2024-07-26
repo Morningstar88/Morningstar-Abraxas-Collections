@@ -12,13 +12,15 @@ I have never taken anyone to court before, and I am simply asking that this case
 
 *
 
-## How The Guardian Damaged UK society and business from 2020 to 2024
+## How The Guardian's Biased Vaccine coverage Damaged UK Society and Business from 2020 to 2024
 
-#### *I'm claiming against the Guardian because their biased coverage contributed towards a worldwide vaccine panic which caused, health, travel, transport and social problems for many British citizens and businesses, both at home in the UK, or abroad. 
+#### *I'm claiming against the Guardian because their negligent reporting contributed towards a worldwide vaccine panic which caused, health, travel, transport and psychological problems for many British citizens and businesses, both at home in the UK, or abroad. 
 
-#### *Virus and Vaccine hysteria, caused directly by the Guardian and other UK periodicals, caused widespread problems in the Taipei business community. 
+#### *Virus and Vaccine hysteria, caused directly by the Guardian and other UK periodicals, caused widespread problems in the Taipei business community and the South East Asian transport industry. I had to delay travel plans for 3 to 4 years, while the fictitious pandemic played out.
 
 #### Not only were UK citizens abroad ordered to stay home, but a once thriving Corporate Training business in the centre of Taipei, Core Corner of Zhongxiao Fuxing, lost 80% of its business, as students were asked to sit at home, or not come to class.* 
+
+SCREENGRABS
 
 #### Dangerous vaccines were then touted as the only solution to the situation. A situation they created themselves.
 
