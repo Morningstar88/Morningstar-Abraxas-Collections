@@ -66,6 +66,77 @@ The Guardian's coverage of the 'pandemic' contributed significantly to the hyste
 
 In the following article, they refer to "some experts" without even naming them. Only Sajid Javid is named... all other parties are faceless, unnacountable. I find this approach to be in violation of the Guardian's Duty of Care towards the British public, their readership, and expatraites abroad. A vaccine or virus expert should be named publicly. Otherwise the appellation 'expert' is nothing more than a bluff.
 
+## Derek Rhodes Mails
+
+![image](https://github.com/user-attachments/assets/f9e2aea4-e9a9-4270-86a8-14d0df721116)
+
+![image](https://github.com/user-attachments/assets/bbdd2567-3c81-4f55-b5b6-33d308966d3b)
+
+![image](https://github.com/user-attachments/assets/8f5fad56-5dc5-4923-b905-7027bc176f25)
+
+![image](https://github.com/user-attachments/assets/ddba4f22-01f1-45fb-bf48-ee2e65c2bde9)
+
+ So, if you haven’t done so yet, try to get that booster shot as soon as possible.
+
+This all means that there is now a greater risk that at some point you might become infected or be identified as a close contact. 
+
+![image](https://github.com/user-attachments/assets/aa796ae6-eb64-478e-826a-90865eea4fe3)
+
+![image](https://github.com/user-attachments/assets/244278f4-43cb-4f35-9243-1982e6636af5)
+
+![image](https://github.com/user-attachments/assets/6ba2d528-0f8c-4614-b12c-54778d9a8dc0)
+
+## Key Email, December 2021
+
+MOE COVID-19 Vaccination Mandate
+Hello Teacher
+
+You may be aware of the government’s 6th December announcement about a vaccination mandate applying to all organizations operating under the auspices of the Ministry of Education (MOE). This announcement means that this mandate is applicable to all teachers at Core & Corner for all types of classes, i.e. both on-line and in-person classes. The details are as follows:
+
+ 
+
+ All teachers will have to be fully vaccinated against COVID-19 or be subject to constant testing
+Teachers must have had two vaccine doses for more than 14 days to be considered “fully vaccinated”
+All teachers were urged to get fully vaccinated by Friday 17th December; however, vaccination is not compulsory
+Teachers who have a vaccine exemption or cannot get vaccinated due to personal reasons must be tested every week and provide a negative COVID-19 test result from either an antigen rapid test, an at-home rapid test or a polymerase chain reaction (PCR) test
+New teachers must provide a negative COVID-19 test result from either an antigen rapid test, an at-home rapid test or a polymerase chain reaction (PCR) test taken within three days of the first day of work after the deadline
+ 
+![image](https://github.com/user-attachments/assets/2d4a768c-f89f-4c41-af00-7e190adaf202)
+
+![image](https://github.com/user-attachments/assets/3bb93274-dd55-4a25-a06f-235b2bcebf6e)
+
+![image](https://github.com/user-attachments/assets/f748b5da-7912-448d-a4f0-e837eda6dcc6)
+
+![image](https://github.com/user-attachments/assets/3e0727f2-2822-4abe-9d26-0da0d01da2eb)
+ 
+![image](https://github.com/user-attachments/assets/2832af30-ff81-461d-a442-c3f7b5651c0d)
+
+![image](https://github.com/user-attachments/assets/c74d07d0-f3bd-405f-94c3-9e481dfa7be7)
+
+ 
+
+ 
+
+In order for Core & Corner to comply with this mandate the Teachers who are unwilling or unable to either be fully vaccinated or provide weekly test results will unfortunately only be permitted to do out-of-office on-line classes from 1st January 2022. 
+
+Have a good Christmas and stay Covid free for 2022.
+
+Kind regards
+
+Derek
+
+Derek Rhodes
+Head Teacher / Business English Consultant
+Mobile: 0988 296090  Tel: (02)2721-5033  #205 Fax: (02)2731-5946
+106台北市復興南路一段222號10F
+世界公民 www.core-corner.com
+FB: https://zh-tw.facebook.com/corecorner/
+20歲能單獨旅行全世界30歲能應徵世界任一國工作
+40歲能運用世界資源做決策，在世界中創造新世界！
+
+
+
+
 ## The Gaurdian took part in Vaccine Intimidation
 
 The people of the United Kingdom, and myself, were forced to sit at home, doing little business, and not flying abroad, while more vulnerable members of our society were intimidated, by The Guardian, into taking experimental vaccines which had hardly been tested. 
