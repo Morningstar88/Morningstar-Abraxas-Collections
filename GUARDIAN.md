@@ -46,6 +46,11 @@ From 2020 to 2023, The Guardian Newspaper wrote dozens, if not hundreds of artic
 
 #### Extra Pfizer/BioNTech and Moderna jabs for 2022 and 2023 ordered to ‘future proof’ vaccine programme. Ministers in the UK have secured new contracts to buy 114m more Covid-19 vaccines for the next two years.
 
+
+### Payslip
+
+![image](https://github.com/user-attachments/assets/8f7f81c5-4b37-4627-a6e3-309f7fb91c96)
+
 ![image](https://github.com/user-attachments/assets/da82e482-660b-49cf-bd7b-6225f02e7cd8)
 
 
