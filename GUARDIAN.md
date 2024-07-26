@@ -221,7 +221,14 @@ The Guardian's coverage of the 'pandemic' contributed significantly to the hyste
 
 ![image](https://github.com/user-attachments/assets/dbbaae04-5965-4eb9-b7cb-8b423cbf0f88)
 
-In the following article, they refer to "some experts" without even naming them. Only Sajid Javid is named... all other parties are faceless, unnacountable. I find this approach to be in violation of the Guardian's Duty of Care towards the British public, their readership, and expatraites abroad. A vaccine or virus expert should be named publicly. Otherwise the appellation 'expert' is nothing more than a bluff.
+In the following article, they refer to "some experts" without even naming them. Only Sajid Javid is named... all other parties are faceless, unnacountable. I find this approach to be in violation of the Guardian's Duty of Care towards the British public, their readership, and expatraites abroad. 
+
+![Uploading image.png…]()
+
+
+A vaccine or virus expert should be named publicly. Otherwise the appellation 'expert' is nothing more than a bluff.
+
+
 
 Derek Rhodes
 Head Teacher / Business English Consultant
