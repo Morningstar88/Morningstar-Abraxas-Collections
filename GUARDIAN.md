@@ -8,17 +8,19 @@ I certainly do not wish to abuse any court process, as claimed by the defendant 
 
 ![image](https://github.com/user-attachments/assets/5125dc2f-fb49-4161-8a4b-647db92f17af)
 
-I have never taken anyone to court before, and I am simply asking that this case be overseen by fair, impartial judges. Like the defendant the Guardian, I too seek a speedy resolution. I present my case in writing. I would also prefer to resolve this case with no trial.
+I have never taken anyone to court before, and I am simply asking that this case be overseen by fair, impartial judges. Like the defendant the Guardian, I too, seek a speedy resolution. I present my case in writing. I would also prefer to resolve this case with no trial.
 
 *
 
 ## How The Guardian's Biased Vaccine coverage Damaged UK Society and Business from 2020 to 2024
 
-#### *I'm claiming against the Guardian because their negligent reporting contributed towards a worldwide vaccine panic which caused, health, travel, transport and psychological problems for many British citizens and businesses, both at home in the UK, or abroad. 
+#### * I'm claiming against the Guardian because their negligent reporting contributed towards a worldwide vaccine panic which caused, health, travel, transport and psychological problems for many British citizens and businesses, both at home in the UK, and abroad. 
 
-#### *Virus and Vaccine hysteria, caused directly by the Guardian and other UK periodicals, caused widespread problems in the Taipei business community and the South East Asian transport industry. I had to delay travel plans for 3 to 4 years, while the fictitious pandemic played out.
+#### *Virus and Vaccine hysteria, caused directly by the Guardian and other UK periodicals, caused widespread problems in the Taipei business community, and the South East Asian transport industry. I had to delay travel plans for 3 to 4 years, while the fictitious profit-driven pandemic played out.
 
 #### Not only were UK citizens abroad ordered to stay home, but a once thriving Corporate Training business in the centre of Taipei, Core Corner of Zhongxiao Fuxing, lost 80% of its business, as students were asked to sit at home, or not come to class.* 
+
+#### The education sector lost so much work that I lost 15 to 20,000 pounds inincome, and eventually had to leave Taiwan.
 
 SCREENGRABS
 
