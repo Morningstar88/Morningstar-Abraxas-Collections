@@ -8,7 +8,7 @@ I certainly do not wish to abuse any court process, as claimed by the defendant 
 
 ![image](https://github.com/user-attachments/assets/5125dc2f-fb49-4161-8a4b-647db92f17af)
 
-I have never taken anyone to court before, and I am simply asking that this case be overseen by fair, impartial judges. Like the defedant the Guardian, I too seek a speedy resolution. 
+I have never taken anyone to court before, and I am simply asking that this case be overseen by fair, impartial judges. Like the defendant the Guardian, I too seek a speedy resolution. I present my case in writing. I would also prefer to resolve this case with no trial.
 
 *
 
