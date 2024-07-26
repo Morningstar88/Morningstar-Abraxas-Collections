@@ -6,7 +6,7 @@ Dear Moneyclaim, and St Katharine's House,
 
 Thank you for presiding over this case.
 
-I received Mr Adriano's thoughtfully written response pack by email yesterday.
+I received Mr Adriano's thoughtfully written response pack by email, on the 25th of July.
 
 I am outside the UK right now, so cannot fill in paperwork in person. I hope this written testimonial will suffice. 
 
@@ -16,15 +16,17 @@ I certainly do not wish to abuse or obstruct any court process, as claimed by GM
 
 ![image](https://github.com/user-attachments/assets/5125dc2f-fb49-4161-8a4b-647db92f17af)
 
-In fact, it is the Guardian's virus and vaccine coverage that abused the goodwill and credulity of the British, and wordlwide public. Vaccine worries contributed towards travel and business obstructions and restrictions in the UK, South East Asia, and Earth, for over three years. 
+In fact, it is the Guardian's virus and vaccine coverage that abused the goodwill and credulity of the British, and wordlwide public. Vaccine worries contributed towards travel and business obstructions and restrictions in the UK, South East Asia, and all over Earth, from 2020 to 2023. 
 
 I have never taken anyone to court before, and I am simply asking that this case be overseen by fair, impartial judges. 
 
 ## Mediation is Requested
 
-Like the defendant, The Guardian, I too seek a speedy resolution.  I would also prefer to resolve this case with no trial. I am open to mediation with a moneyclaim officer, as long as I get a financial settlement which reflects both damagtes, and the time I have spent compiling this case.
+Like the defendant, The Guardian, I seek a speedy resolution. I would also prefer to resolve this case with no trial. I am open to mediation with a moneyclaim officer, as long as I get a financial settlement which reflects both damages incurred, and the time I have spent compiling this case.
 
 I have presented my case online, here... as I am still formatting my writing.
+
+GITHUB LINK
 
 Please tell me what steps I need to take next to bring a speedy resolution. 
 
@@ -34,7 +36,7 @@ Jake Mackenzie
 
 ## CASE FOLLOWS
 
-## How The Guardian's Biased Vaccine Coverage Damaged UK + Taiwanese Society, Business, and My Personal Income, from February 2020, to Summer 2023
+# How The Guardian's Biased Vaccine Coverage Damaged UK + Taiwanese Society, Business, and My Personal Income, from February 2020, to Summer 2023
 
 ![image](https://github.com/user-attachments/assets/3b0b051e-fd73-4a50-bac5-77bad0bb12cf)
 
@@ -42,23 +44,37 @@ I swear, under penalty of perjury, the following testimonial is a true and faith
 
 #### * I'm claiming against the Guardian, because their negligent fact-checking contributed towards a worldwide virus and vaccine panic, which caused the following chain of events;
 
-### ONE. 24 to 36 months of strong social pressure, and financial coercion to take untested, unsafe vaccines. The Guardian ignored, dismissised or minimized vaccine side-effects many times. 
+## ONE. 24 to 36 months of strong social pressure, and financial coercion to take untested, unsafe vaccines. The Guardian ignored, dismissised or minimized vaccine side-effects many times. 
 
-### I saw friends and colleagues in Taipei suffer from nerve damage, chronic fatigue, Bell's Palsy and other ill health effects, very soon after they took their shots. These health effects are hardly mild or short-lived, as the Guardian negligently claimed on March 18th, 2021. 
-
-https://www.theguardian.com/world/2021/mar/18/covid-vaccine-side-effects-pfizer-moderna-johnson-is-it-safe
+### I saw friends and colleagues in Taipei suffer from nerve damage, chronic fatigue, Bell's Palsy and other ill health effects, very soon after they took their shots. These health effects are hardly mild or short-lived, as the Guardian negligently claimed on March 18th, 2021: 
 
 ## Vaccine side effects... what you should know, and why you shouldn't worry. 
 
 ![image](https://github.com/user-attachments/assets/e411610a-98c6-4ec0-aff1-42ff52e8d967)
 
+https://www.theguardian.com/world/2021/mar/18/covid-vaccine-side-effects-pfizer-moderna-johnson-is-it-safe
 
-### TWO. The citizens of Taipei and the UK endured 24 to 36 months of overseas travel restrictions. I could not travel to Indonesia for 3-4 years, as I was worried about unsafe vaccines and medical side-effects. The Guardian supported both the vaccine and lockdown narrative in South East Asia. On Friday 9th of December 2022, this periodical claimed that "without effective vaccines, China's economy may not heal." 
+
+## TWO. The citizens of Taipei, and the UK, endured 24 to 36 months of overseas travel restrictions. I could not travel to Indonesia for 3-4 years, as I was worried about unsafe, untested vaccines and serious medical side-effects. The Guardian supported both the vaccine and lockdown narrative in South East Asia. 
+
+On the 19th of March 2020, The Guardian claimed that China's coronavirus lockdown strategy was 'brutal but effective'.
+
+Furthermore, On Friday 9th of December 2022, this periodical claimed that "without effective vaccines, China's economy may not heal." 
 
 ![image](https://github.com/user-attachments/assets/accfc798-5e11-43ba-a2fa-7e996f0b21a0)
 
+With these articles, and many others, the Guardian cheerled a draconian Virus-Lockdown-Vaccine triptych, which may have cemented policy changes in the UK and SouthEast Asia. With their 'Brutal but effective' commentary, they are going far beyond neutral reporting, and in fact condoning police-state repression. As a very close neighbour of China, Taiwan's policy may have been substantially influenced by the Guardian's medical negligence, and political overreach. 
 
-### 3. 18-24 months of Psychological pressure from family, and work, to take a vaccine. A vaccines which may have caused severe allergies. The Guardian's constant assurances of the safety and efficacy of these vaccines caused many to take a hardline view of those who decided to remain safely unvaccinated. At work, and on transport, we were treated as second class citizens.
+### 3. I endured 18-24 months of Psychological pressure from family in the UK, and colleagues at work, to take a vaccine. Detailed email screengrabs follow.  The Guardian's assurances of the safety and efficacy of these vaccines caused many to take a hardline view of those who decided to remain safely unvaccinated. At work, and on transport, we were treated as second class citizens.
+
+
+#### From 2020 to 2023, I lost work in Taipei, as a direct result of Virus and Vaccine Hysteria. A hysteria which is directly, personally, and negligently, the fault of the UK Guardian of London.
+
+![image](https://github.com/user-attachments/assets/8f7f81c5-4b37-4627-a6e3-309f7fb91c96)
+
+![image](https://github.com/user-attachments/assets/da82e482-660b-49cf-bd7b-6225f02e7cd8)
+
+
 
 ### 4. Loss of two to three years teaching income, from my employment in a previously thriving business in central Taipei. Loss of students and income was primarily due to vaccine mandates, as I shall prove in many screengrabbed emails. If the Guardian and their allies had not launched the COVID 
 
@@ -94,6 +110,10 @@ The Guardian's pushing of the COVID narrative contributed to worldwide lockdowns
 ![image](https://github.com/user-attachments/assets/a651bde3-f6e7-49a7-8af4-ce65f1ae76cd)
 
 https://www.theguardian.com/world/2020/mar/19/chinas-coronavirus-lockdown-strategy-brutal-but-effective
+
+
+*
+
 My supervisor at work, Derek Rhodes, is a British citizen, and contributed to vax blaimalil. PROVE, screengrab.
 
 ![image](https://github.com/user-attachments/assets/40d48a54-7f06-4c76-842c-a957db595b95)
@@ -118,15 +138,6 @@ https://www.theguardian.com/business/2022/may/07/vaccine-to-stop-covid-transmiss
 #### I lost 80% of my income, causing severe financial hardship in my partment in North Taipei for 3 years. 
 
 #### The education sector in the whole of Taipei lost so much work, that I lost an estimated 15 to 20,000 pounds in income over 24-26 months. I eventually left Taiwan to look for work elsewhere, which caused another hit to my savings. There is a direct link between the Guardians negligent fact-checking, the vaccines mandates in South East Asia, and the subsequent loss of income from many hard-working, sincere teachers. 
-
-#### From 2020 to 2023, I lost work in Taipei, as a direct result of Virus and Vaccine Hysteria. A hysteria which is directly, personally, and negligently, the fault of the UK Guardian of London.
-
-
-
-![image](https://github.com/user-attachments/assets/8f7f81c5-4b37-4627-a6e3-309f7fb91c96)
-
-![image](https://github.com/user-attachments/assets/da82e482-660b-49cf-bd7b-6225f02e7cd8)
-
 
 #### *Virus and Vaccine hysteria, caused directly by the Guardian and other UK periodicals, caused widespread problems in the Taipei business community, and the South East Asian transport industry. I had to delay travel plans for 3 to 4 years, while the fictitious profit-driven pandemic played out.
 
