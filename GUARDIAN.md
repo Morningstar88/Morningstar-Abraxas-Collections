@@ -235,7 +235,7 @@ Derek
 
 ***
 
-
+**************************************PASTED ALL ABOVE*************************************************
 
 ## Viruses, Lockdowns, and Vaccine Contracts
 
