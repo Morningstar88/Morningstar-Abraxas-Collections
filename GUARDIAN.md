@@ -39,10 +39,13 @@ Many UK citizens experienced the same situation, both at home in the UK, and abr
 
 ## Core and Corner Vaccine Coercion
 
-My business life in Taipei was affected by vaccine panic. You can see in these emails that heavy pressure was placed upon teachers to get vaccinated, from governments, bosses, and the worldwide media. 
+My business life and income in Taipei was severely affected by vaccine panic. 
 
-- This pressure came as a result of virus hype from the Guardian. A 'newspaper' that is read by many company bosses in South East Asia.
+You can see in the following emails, that heavy pressure was placed upon teachers to get vaccinated, from governments, bosses, and the worldwide media. 
 
+- This pressure came as a result of virus hype from The Guardian. A self-proclaimed online 'newspaper' that is read by many company bosses in South East Asia.
+
+### December 5th 2021, Vaccine Mandate. Teachers to to take two doses of vaccines, else no work.
 
 ![image](https://github.com/user-attachments/assets/aa796ae6-eb64-478e-826a-90865eea4fe3)
 
