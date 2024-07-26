@@ -4,7 +4,7 @@ Dear Moneyclaim, and St Katharine's House,
 
 Thank you for presiding over this case.
 
-I am outside the UK right now, so cannot fill in your response pack in person. I hope this written testimonial will suffice. 
+I am outside the UK right now, so cannot fill in paperwork in person. I hope this written testimonial will suffice. I am requesting that this process take place 100% online.
 
 I certainly do not wish to abuse or obstruct any court process, as claimed by the defendant in 10(3.2) of their response pack. 
 
@@ -24,13 +24,62 @@ Like the defendant, The Guardian, I too seek a speedy resolution. I present my c
 
 #### * I'm claiming against the Guardian, because their negligent fact-checking contributed towards a worldwide virus and vaccine panic, which caused the following chain of events;
 
-1. 24 to 36 months of strong social pressure, and financial coercion to take untested, unsafe vaccines. The Guardian ignored possible health issues many times.
+### 1. 24 to 36 months of strong social pressure, and financial coercion to take untested, unsafe vaccines. The Guardian ignored or minimized vaccine side-effects many times. I saw friends and colleagues in Taipei suffer from nerve damage, chronic fatigue, Bell's Palsy and other ill health effects, very soon after they took their shots. The Guardian contributed greatly to vaccine pressure.
 
-2. 24 to 36 months of overseas travel restrictions. I could not travel to Indonesia for 3-4 years, as I was worried about unsafe vaccines and medical side-effects. The Guardian supported
+### 2. 24 to 36 months of overseas travel restrictions. I could not travel to Indonesia for 3-4 years, as I was worried about unsafe vaccines and medical side-effects. The Guardian supported
 
-3. 18-24 months of Psychological pressure from family, and work, to take a vaccine which may have caused severe allergies. 
+### 3. 18-24 months of Psychological pressure from family, and work, to take a vaccine which may have caused severe allergies. 
+
+### 4. Loss of two to three years teaching income, from my employment in a previously thriving business in central Taipei. Loss of students and income was primarily due to vaccine mandates, as I shall prove in many screengrabbed emails. If the Guardian and their allies had not launched the COVID 
+
+
 
 Many UK citizens experienced the same situation, both at home in the UK, and abroad. Businesses were closed, income was sharply reduced. The Guardian is very much responsible for the facts they choose to report.  
+
+
+## The Guardian promoted a vaccine panic
+
+When the vaccines were released, in 2021 and 2022, there was no care taken to ensure that there was an appropriate testing period, to guard against side-effects, toxins, and long term health effects.
+
+![image](https://github.com/user-attachments/assets/66bc29fc-cdac-4898-b845-7be868d86e5a)
+
+
+The Guardian's promotion of vaccines was both reckless and biased. In the initial stages, they did nothing to question the lucrative narratives being pushed by pharmaceutical companies, who stood to make hundreds of millions from vaccine contracts.
+
+![image](https://github.com/user-attachments/assets/77d9c095-f004-4205-a598-40fee371296b)
+
+
+This promotion of vaccines in the Guardian's coverage, amounts to medical coercion, where those who were unvaccinated, were asked to stay at home. MORE
+
+![image](https://github.com/user-attachments/assets/1e7a1ac5-89cc-4d4e-8bc2-64eb00cf1c86)
+
+https://www.theguardian.com/world/2022/aug/15/from-nasal-vaccines-to-pills-the-next-defences-against-covid
+
+The vaccines were rushed out, without a proper testing period. The Guardian knew this, chose to ignore the dangers, and put the health of many British citizens at risk, both in the UK, and abroad, as their periodical is read worldwide.
+
+https://www.theguardian.com/us-news/2023/dec/01/texas-pfizer-covid-19-vaccine-lawsuit-effectiveness
+
+The Guardian's pushing of the COVID narrative contributed to worldwide lockdowns, where many people, including myself, lost significant income. My income in Taipei went from an average of 1000 pounds per month, to 300, as students were ordered to stay at home. The Guardian's pushing of the pharmaceutical narrative contributed directly to this situation.
+
+![image](https://github.com/user-attachments/assets/a651bde3-f6e7-49a7-8af4-ce65f1ae76cd)
+
+https://www.theguardian.com/world/2020/mar/19/chinas-coronavirus-lockdown-strategy-brutal-but-effective
+My supervisor at work, Derek Rhodes, is a British citizen, and contributed to vax blaimalil. PROVE, screengrab.
+
+![image](https://github.com/user-attachments/assets/40d48a54-7f06-4c76-842c-a957db595b95)
+
+https://www.theguardian.com/us-news/2023/dec/01/texas-pfizer-covid-19-vaccine-lawsuit-effectiveness
+
+I therefore believe the Guardian's coverage of the virus and vaccine to be negligent, psychologically hurtful, financially damaging to millions of livelihoods, and a contribution towards the violation of several basic human rights...
+
+![image](https://github.com/user-attachments/assets/4aa5b78b-53d4-4d94-9b77-c5bb2bd34889)
+
+![image](https://github.com/user-attachments/assets/d657474a-f6e8-48ae-8555-e64ced761efa)
+
+https://www.theguardian.com/business/2022/may/07/vaccine-to-stop-covid-transmission-should-now-be-top-priority-says-leading-uk-scientist
+
+
+
 
 ## My Employer, Core Corner of Taipei, lost 80% of its students as a direct result of Virus and Vaccine Panic.
 
@@ -85,49 +134,6 @@ Nasal Swabs, intimidate...
 
 
 https://www.theguardian.com/news/2021/apr/08/among-covid-sceptics-we-are-being-manipulated-anti-lockdown
-
-## The Guardian promoted a vaccine panic
-
-When the vaccines were released, in 2021 and 2022, there was no care taken to ensure that there was an appropriate testing period, to guard against side-effects, toxins, and long term health effects.
-
-![image](https://github.com/user-attachments/assets/66bc29fc-cdac-4898-b845-7be868d86e5a)
-
-
-The Guardian's promotion of vaccines was both reckless and biased. In the initial stages, they did nothing to question the lucrative narratives being pushed by pharmaceutical companies, who stood to make hundreds of millions from vaccine contracts.
-
-![image](https://github.com/user-attachments/assets/77d9c095-f004-4205-a598-40fee371296b)
-
-
-This promotion of vaccines in the Guardian's coverage, amounts to medical coercion, where those who were unvaccinated, were asked to stay at home. MORE
-
-![image](https://github.com/user-attachments/assets/1e7a1ac5-89cc-4d4e-8bc2-64eb00cf1c86)
-
-https://www.theguardian.com/world/2022/aug/15/from-nasal-vaccines-to-pills-the-next-defences-against-covid
-
-The vaccines were rushed out, without a proper testing period. The Guardian knew this, chose to ignore the dangers, and put the health of many British citizens at risk, both in the UK, and abroad, as their periodical is read worldwide.
-
-https://www.theguardian.com/us-news/2023/dec/01/texas-pfizer-covid-19-vaccine-lawsuit-effectiveness
-
-The Guardian's pushing of the COVID narrative contributed to worldwide lockdowns, where many people, including myself, lost significant income. My income in Taipei went from an average of 1000 pounds per month, to 300, as students were ordered to stay at home. The Guardian's pushing of the pharmaceutical narrative contributed directly to this situation.
-
-![image](https://github.com/user-attachments/assets/a651bde3-f6e7-49a7-8af4-ce65f1ae76cd)
-
-https://www.theguardian.com/world/2020/mar/19/chinas-coronavirus-lockdown-strategy-brutal-but-effective
-My supervisor at work, Derek Rhodes, is a British citizen, and contributed to vax blaimalil. PROVE, screengrab.
-
-![image](https://github.com/user-attachments/assets/40d48a54-7f06-4c76-842c-a957db595b95)
-
-https://www.theguardian.com/us-news/2023/dec/01/texas-pfizer-covid-19-vaccine-lawsuit-effectiveness
-
-I therefore believe the Guardian's coverage of the virus and vaccine to be negligent, psychologically hurtful, financially damaging to millions of livelihoods, and a contribution towards the violation of several basic human rights...
-
-![image](https://github.com/user-attachments/assets/4aa5b78b-53d4-4d94-9b77-c5bb2bd34889)
-
-![image](https://github.com/user-attachments/assets/d657474a-f6e8-48ae-8555-e64ced761efa)
-
-https://www.theguardian.com/business/2022/may/07/vaccine-to-stop-covid-transmission-should-now-be-top-priority-says-leading-uk-scientist
-
-
 
 
 ## December 2021.  All teachers will have to be fully vaccinated against COVID-19 or be subject to constant testing
