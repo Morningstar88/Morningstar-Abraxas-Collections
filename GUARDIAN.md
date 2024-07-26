@@ -42,17 +42,19 @@ Jake Mackenzie
 
 ![image](https://github.com/user-attachments/assets/3b0b051e-fd73-4a50-bac5-77bad0bb12cf)
 
-I swear, under penalty of perjury, the following testimonial is a true and faithful account, to the best of my recollection.
+I swear, under penalty of perjury, the following testimonial is a true and faithful account of facts, to the best of my recollection.
 
 #### * I'm claiming against the Guardian, because their negligent fact-checking contributed towards a worldwide virus and vaccine panic, which caused the following chain of events;
 
-## ONE. 24 to 36 months of strong social pressure, and financial coercion to take untested, unsafe vaccines. The Guardian ignored, dismissised or minimized vaccine side-effects many times. 
+## ONE. 24 to 36 months of psychological social pressure, and financial coercion, to take untested, unsafe vaccines. The Guardian ignored, dismissised or minimized vaccine side-effects many times. 
 
-### I saw friends and colleagues in Taipei suffer from nerve damage, chronic fatigue, Bell's Palsy and other ill health effects, very soon after they took their shots. These health effects are hardly mild or short-lived, as the Guardian negligently claimed on March 18th, 2021: 
 
 ## Vaccine side effects... what you should know, and why you shouldn't worry. 
 
 ![image](https://github.com/user-attachments/assets/e411610a-98c6-4ec0-aff1-42ff52e8d967)
+
+### I saw friends and colleagues in Taipei suffer from nerve damage, chronic fatigue, Bell's Palsy and other ill health effects, very soon after they took their shots. These health effects are hardly mild or short-lived, as the Guardian negligently claimed on March 18th, 2021: 
+
 
 https://www.theguardian.com/world/2021/mar/18/covid-vaccine-side-effects-pfizer-moderna-johnson-is-it-safe
 
