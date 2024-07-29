@@ -2,41 +2,8 @@ CC email.
 
 ## JAKE MACKENZIE VS THE GUARDIAN
 
-Dear Moneyclaim, and St Katharine's House,
 
-Thank you for presiding over this case.
 
-I received Mr Adriano's thoughtfully written response pack by email, on the 25th of July.
-
-I am outside the UK right now, so cannot fill in paperwork in person. I hope this written testimonial will suffice. 
-
-I am requesting that this process take place 100% online.
-
-I certainly do not wish to abuse or obstruct any court process, as claimed by GMN and Mr Adriano, in 10(3.2) of their response. 
-
-![image](https://github.com/user-attachments/assets/5125dc2f-fb49-4161-8a4b-647db92f17af)
-
-In fact, it is the Guardian's virus and vaccine coverage that abused the goodwill and credulity of the worldwide public. Vaccine worries contributed towards travel and business restrictions in the UK and South East Asia, from 2020 to 2023. 
-
-I have never taken anyone to court before, and I am simply asking that this case be overseen by fair, impartial judges in St Katharine's House, Northhampton. 
-
-## Mediation is Requested
-
-Like the defendant, The Guardian, I seek a speedy resolution. 
-
-I would also prefer to resolve this case with no trial. I am open to mediation with a moneyclaim officer, as long as I get a financial settlement which reflects both damages incurred, and the time I have spent compiling this case.
-
-I have presented my case online, here... as I am still formatting my writing.
-
-GITHUB LINK
-
-Please tell me what steps I need to take next to bring a swift end to this process. 
-
-Faithfully,
-
-Jake Mackenzie
-
-## CASE FOLLOWS
 
 # How The Guardian's Biased Vaccine Coverage Damaged UK + Taiwanese Society, Business, and My Personal Income, from February 2020, to Summer 2023
 
